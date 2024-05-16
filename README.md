@@ -1,3 +1,0 @@
-"# FOURTUNE" 
-"# FOURTUNE" 
-"# FOURTUNE" 
